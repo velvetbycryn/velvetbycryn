@@ -11,7 +11,9 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yg5t2ew2yrbq4falooucp3dxoa&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=ff99f0&bar_color_cover=false">
   </a>
 </p>
-  
-   
+  span style="color:#DC143C">╰┈➤ thanks for visiting ♡</span>
+</p>
+ span style="color:#DC143C">╰┈➤ thanks for visiting ♡</span>
+</p>  
   </a>
 </p>
