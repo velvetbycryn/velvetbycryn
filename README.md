@@ -13,9 +13,8 @@
 
 <br><br>
 
-<a href=https://ecrin.straw.page/>straw</a>
+<a href=https://ecrin.straw.page/>straw page</a>
 &nbsp;
-<a href=https://https://ecryn.straw.page>old straw</a>
 <a href=https://guns.lol/ecryn>guns</a>
 <a href=https://reirei.atabook.org>ata</a>
 <br><br>
