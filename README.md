@@ -1,6 +1,5 @@
 <div align="center">
 
-<img src=[![1002185970-removebg-preview.png](https://i.postimg.cc/jdr0F1hP/1002185970-removebg-preview.png)](https://postimg.cc/t7DM12w4) width="90%">
 
 <br><br>
 
