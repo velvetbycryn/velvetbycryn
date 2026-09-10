@@ -9,7 +9,7 @@
 
 <br><br>
 
-<img [![a49f5d2e90369bf83a0be9402aea4876.jpg](https://i.postimg.cc/m2htsHbd/a49f5d2e90369bf83a0be9402aea4876.jpg)](https://postimg.cc/KRSZ743L)
+[![Basliksiz38-20260910150739.png](https://i.postimg.cc/Mp9wKsd5/Basliksiz38-20260910150739.png)](https://postimg.cc/684gMhs4)
 
 <br><br>
 
