@@ -13,10 +13,10 @@
 
 <br><br>
 
-<a href=https://ecrin.straw.page/>Straw.</a>
+<a href=https://ecrin.straw.page/>straw</a>
 &nbsp;
 <a href=https://guns.lol/ecryn>guns</a>
-
+<a href=https://reirei.atabook.org>ata</a>
 <br><br>
 
 <img src="https://komarev.com/ghpvc/?username=velvetbycryn&style=for-the-badge&label=Profile+Views+★" alt="Profile Views">
