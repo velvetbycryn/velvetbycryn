@@ -44,6 +44,9 @@
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31yg5t2ew2yrbq4falooucp3dxoa&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yg5t2ew2yrbq4falooucp3dxoa&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false">
+  </a>
+</p>
     
 
   
