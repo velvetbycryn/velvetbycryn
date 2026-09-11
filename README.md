@@ -21,7 +21,7 @@
 
 <div align="center">
 
-<img src="https://komarev.com/ghpvc/?username=velvetbycryn&label=velvetlings ✦&color=5c5c5c&style=flat">
+<img src="https://komarev.com/ghpvc/?username=velvetbycryn&label=velvetlings&color=5c5c5c&style=flat-square">
 
 </div>
 
