@@ -19,7 +19,11 @@
 <a href=https://reirei.atabook.org>ata</a>
 <br><br>
 
-<img src="https://komarev.com/ghpvc/?username=velvetbycryn&style=for-the-badge&label=Profile+Views+★" alt="Profile Views">
+<div align="center">
+
+<img src="https://komarev.com/ghpvc/?username=velvetbycryn&label=velvetlings ✦&color=5c5c5c&style=flat">
+
+</div>
 
 <br><br>
 
