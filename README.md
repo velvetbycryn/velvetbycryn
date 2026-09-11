@@ -11,7 +11,7 @@
 
 [![1002185999-removebg-preview.png](https://i.postimg.cc/htBwW9ng/1002185999-removebg-preview.png)](https://postimg.cc/TptQn5hH)
 
-<br>"𝑭𝒐𝒓 𝒊𝒇 𝑰 𝒍𝒐𝒔𝒕 𝒊𝒕, 𝒔𝒐𝒎𝒆𝒃𝒐𝒅𝒚 𝒆𝒍𝒔𝒆 𝒘𝒊𝒍𝒍 𝒄𝒉𝒆𝒆𝒓 𝒚𝒐𝒖 𝒃𝒖𝒕 𝒘𝒉𝒐 𝒆𝒍𝒔𝒆 𝒄𝒐𝒖𝒍𝒅 𝒍𝒐𝒗𝒆 𝒎𝒆 𝒒𝒖𝒊𝒕𝒆 𝒂𝒔 𝒌𝒊𝒏𝒅𝒍𝒚 𝒂𝒔 𝒚𝒐𝒖?"<br>
+<br>"𝒊𝒇 𝑰 𝒍𝒐𝒔𝒕 𝒊𝒕, 𝒔𝒐𝒎𝒆𝒃𝒐𝒅𝒚 𝒆𝒍𝒔𝒆 𝒘𝒊𝒍𝒍 𝒄𝒉𝒆𝒆𝒓 𝒚𝒐𝒖 𝒃𝒖𝒕 𝒘𝒉𝒐 𝒆𝒍𝒔𝒆 𝒄𝒐𝒖𝒍𝒅 𝒍𝒐𝒗𝒆 𝒎𝒆 𝒒𝒖𝒊𝒕𝒆 𝒂𝒔 𝒌𝒊𝒏𝒅𝒍𝒚 𝒂𝒔 𝒚𝒐𝒖?"<br>
 
 <a href=https://ecrin.straw.page/>straw page</a>
 &nbsp;
